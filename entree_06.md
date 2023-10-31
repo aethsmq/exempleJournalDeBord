@@ -6,10 +6,10 @@ L’objectif de cet exercice est de développer une opinion sur une œuvre multi
 Entre 300 et 400 mots. 
 
 ### Description
-Décrivez l'oeuvre. Quelles étaient les composantes de l'installation? Comment était-elle réalisée techniquement? 
+c'était un escape game dans un metro, le but était de sortir du metro et arrêter la bombe en faisant plusieurs étapes. 
 
 ### Opinion
-Donnez votre opinion sur l'oeuvre que nous avons visitée. Vous a-t-elle plu? Ou pas du tout? Pourquoi? Est-ce que certains aspects vous ont plus touchés que d'autres? 
+l'escaparium ma vraiment plu. j'adore les escape rooms, j'ai n'est fais plusieurs avec ma cousine alors c'est quelque chose que j'aime. 
 
 ### Analyse critique
-Qu'est-ce qui pourrait être modifié dans cette oeuvre? 
+what could we chnage in it
