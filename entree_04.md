@@ -3,8 +3,6 @@
 Choisissez des emplois qui pourraient vous intéresser. 
 
 ### Illustrateur 
-Écrire 4 à 5 lignes. Parler des tâches reliées à l'emploi. Expliquer où ces personnes travaillent. Décrire les qualités requises pour pratiquer ce métier. Un point qui vous intéresse dans ce métier. Un point qui rend ce métier moins intéressant pour vous.  
-
 Les illustrateurs sont des artistes qui créent des images. ils peuvent créer des publicités, illustrer des livres, dessiner des images pour des étiquettes, dessiner des articles pour des marques de vêtements, créer des diagrammes du corps humain et plus. Ça m'intéresse parce que c'est un des travail que je veut faire et que j'aime et c'est aussi moins intéressant car souvent c'est pour des clients qui veulent q'on fasse leur images de façon qu'on n'aime/pas intéressé.
 
 ### Animateur
