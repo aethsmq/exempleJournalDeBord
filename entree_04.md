@@ -15,6 +15,6 @@ Les photographeurs documentent les événements et informent les magasins à tra
 Un concepteur de jeux vidéo peut développer des intrigues, des personnages, des tâches, des scénarios, des méthodes pour gagner ou perdre un jeu et des options d'interface utilisateur. J'adore tout ce qui est jeux video mais je voudrais pas faire des méthodes pour rendre le jeu facile ou difficile.
 
 ### Monteur de films et de vidéos
-Les monteur de fimls et de vidéo travaillent avec des images de caméra, des effets sonores, des graphiques, des effets spéciaux et des dialogues pour créer des projets vidéo.
+Les monteur de films et de vidéo travaillent avec des images de caméra, des effets sonores, des graphiques, des effets spéciaux et des dialogues pour créer des projets vidéo. Je suis très intéressé pour les effects spéciaux et je le suis moins pour les effets sonores.
 
 
